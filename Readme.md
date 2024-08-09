@@ -67,6 +67,8 @@ Welcome all of you future star candidates who want to strive to attend the acade
   > As an academician.
 - [Muhammad Favian Revaldy](https://github.com/lukarukikato) [FAV]
   > As an academician.
+- [Muhammad Hafiz](https://github.com/mhafiz03) [FAV]
+  > As an academician.
 
 
 <div align="center">
